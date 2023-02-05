@@ -2,7 +2,7 @@
 
 
 
-💼 Atualmente estagiando como chief information officer na Vivo (Telefonica Brasil) <br>
+💼 Analista de sistemas JR na Vivo (Telefonica Brasil) <br>
 🎓 Cursando Sistemas para Internet na Fatec-SR
  <br>
 
